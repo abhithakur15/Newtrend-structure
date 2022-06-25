@@ -1,0 +1,1 @@
+# Newtrend-structure
